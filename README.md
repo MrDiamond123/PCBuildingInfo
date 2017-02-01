@@ -1,5 +1,5 @@
 # PC Building Info
-## Tips, tricks and more!
+Tips, tricks and more!
 
 
 ### Intro
