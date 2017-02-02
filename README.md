@@ -1,6 +1,9 @@
 # PC Building Info
 Tips, tricks and more!
 
+Credits: 
+
+@fireburst290 for being a good bro and helping ALOT!!
 
 ## Intro
 
