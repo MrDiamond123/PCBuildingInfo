@@ -20,5 +20,7 @@ Look up SUSE Songs on Youtube and dance, or just play a video game!
 
 ## I GOT MY PARTS!!
 1st, get your Anti-static wristband and put it on, so you don't waste your money by stocking your parts or hurting your self
+
 2nd, unbox the box... DON'T DROP IT!!
-3rd, c
+
+3rd, 
